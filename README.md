@@ -4,3 +4,5 @@
 * [南+](https://www.south-plus.net/)
 ## 论坛
 * [真后宫动漫](http://154.209.74.31/)
+## 发现
+* [](https://www.hmoegirl.com/Mainpage)
