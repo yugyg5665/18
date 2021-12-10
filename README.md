@@ -2,6 +2,7 @@
 ## 常用
 * [搜书吧](http://8.bixushoucang.com:2888/b/u1u2u3.html?122) 
 * [南+](https://www.south-plus.net/)
+* [淫 书 馆-兴趣使然 录制 低画质 低帧率 美少女 HS鉴赏 封面索引 CTRL+F 搜索](https://7i6wwwnx9qi498oizukuag-on.drv.tw/www.galgamenohcg.xyz/)
 ## 论坛
 * [真后宫动漫](http://154.209.74.31/)|[扶她奶茶论坛](https://www.futanaicha.xyz/)|[ZodGame论坛 ](https://zodgame.xyz/)|[花火学园](https://www.sayhuahuo.com/forum.php)
 [终点论坛](https://bbs.zdfx.net/forum.php)
