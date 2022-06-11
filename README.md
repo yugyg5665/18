@@ -10,7 +10,6 @@
 * [H萌娘](https://www.hmoegirl.com/Mainpage)|[萌游网](https://galge.cn/)
 ## 收藏夹
 [番组计划](https://bgm.tv/)
-[恋爱游戏网](https://www.lianaiyx.com/)
 ## 小说
 [繽紛幻想小說](https://colorful-fantasybooks.com/)
 []()
